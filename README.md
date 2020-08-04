@@ -12,4 +12,4 @@
 
 
 
-⚡ Fun fact: If you took all the atoms in a person and laid them out on a football field, you most certainly will be arrested :[
+⚡ Fun fact: If you took all the atoms in a person and laid them out on a football field, you most certainly would be arrested :[
