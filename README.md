@@ -1,3 +1,5 @@
+<p style="text-align:center">![](https://komarev.com/ghpvc/?username=LostSam423&color=blueviolet)<p>
+
 ### Hi there 👋
 
 <p> 
